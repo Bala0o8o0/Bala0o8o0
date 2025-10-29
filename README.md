@@ -1,5 +1,5 @@
 # 💫 About Me:
-HI 👋 i am bala<br>Designer/Developer<br>UI 🔁 Web3 🔁AI<br>💸Empowering Businesses for Online Success!
+HI 👋 i am bala<br>Designer/Developer<br>UI 🔁 Web3 🔁AI
 
 
 ## 🌐 Socials:
