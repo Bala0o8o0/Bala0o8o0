@@ -1,5 +1,5 @@
 # 💫 About Me:
-HI 👋 i am Bala Murugan<br>Designer/Developer<br>UI 🔁 Web3 🔁AI
+HI 👋 i am Bala Murugan<br>Designer/Developer<br>AI 🔁 Web 🔁Web3
 
 
 ## 🌐 Socials:
